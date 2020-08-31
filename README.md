@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+1. I am a junior at DBHS taking cumputer science foundations. I like to play basketball and lacrosse. I have an older brother and a younger sister.
 <!--
 **Solorjackson/solorjackson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
