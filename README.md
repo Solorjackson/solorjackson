@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋, I am Solomon Jackson (I go by Rocky)
 1. I am a junior at DBHS taking cumputer science foundations
 2. I like to play basketball and lacrosse
 3. I have an older brother and a younger sister.
